@@ -1,3 +1,3 @@
-# discord-bot
+Your no fun!
 Hi mrrrow
 
